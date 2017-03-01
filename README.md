@@ -1,2 +1,2 @@
 # Food-for-Thought
-Culinary Creations
+Yummy Culinary Creations
